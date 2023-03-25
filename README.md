@@ -1,10 +1,12 @@
+💙i have new ideas for people and to me alone now 💙
+
+Here are some ideas of what you can tell your potential sponsors:
+
+[ 💙] Managing and Productions witk making music.
+[ 💙] iam like with music and work in music.
+[ 💙] Need help to making all about, so for one making project need support to making all thats.
 - 👋 Hi, I’m @xxxcoder-ui
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-
-<!---
-xxxcoder-ui/xxxcoder-ui is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
